@@ -1,0 +1,1 @@
+# TrainingRikkeisoft_Activity
